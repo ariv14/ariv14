@@ -5,6 +5,7 @@
 - 📫 How to reach me: +65 86279940 or email me @ arimatch1@gmail.com
 
 Founder of: https://aidigitalcrew.com/ & https://swatsys.com/
+Subscribe to newsletter: https://aidigitalcrew.substack.com/
 
 <!---
 ariv14/ariv14 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
