@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on any automation projects.
 - 📫 How to reach me: +65 86279940 or email me @ arimatch1@gmail.com
 
-Founder of: https://aidigitalcrew.com/ & https://swatsys.com/
+Founder of: https://crewhubai.com/ https://aidigitalcrew.com/ & https://swatsys.com/
 
 Subscribe to my newsletter: https://aidigitalcrew.substack.com/
 
